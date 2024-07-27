@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&pause=1000&random=false&width=435&lines=MULTI+TOKEN+LODER+😄+COMMANDS+COPY+AND+PEST)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&pause=1000&random=false&width=435&lines=MULTI+TOKEN+LODER+❤️+COMMANDS+COPY+AND+PEST)](https://git.io/typing-svg)
 
 
 
